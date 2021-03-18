@@ -1,2 +1,2 @@
-# walls
-Favorite Wallpapers
+# Favorite Wallpapers
+
