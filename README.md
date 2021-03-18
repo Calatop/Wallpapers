@@ -1,4 +1,4 @@
-# Fav Stuff
+# Wallpapers
 My definitive collection, stolen from others :3
 
 # How to use Live Wallpapers
